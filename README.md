@@ -53,7 +53,7 @@ Unlock exclusive premium features and updates.
 ### 📩 **Contact Us**  
 - **Telegram:** [@CryptoFlashG](https://t.me/CryptoFlashG)  
 - **Updates Channel:** [Join Here](https://t.me/cryptoflashy)  
-
+- **Email:** **karbelax1@gmail.com**
 ---  
 
 ### 🛠️ **Support & Guarantee:**  
